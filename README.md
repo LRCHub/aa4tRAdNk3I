@@ -1,0 +1,58 @@
+# Claudia – Vacuity
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+“Silence”,So refreshing
+that sounds
+Envision that moment
+we will have
+Right after
+everything is just gone
+“Demise”,How beautiful it is
+Can’t wait to destroy
+you all,but
+You are quick,
+So very quick dying Hopelessly
+Don’t make us disappointed
+every time
+“Innocent”,That’s how we are,
+Can’t you see?
+‘Cause we have
+the power to clean out
+All the foulness
+which means you into this world
+“Outraged”,you think we are?
+Don’t you know?
+Our hearts made of metal,
+not even stone,
+Always calm,increasing the
+nothingness,
+which is the mission
+Of our existence
+Don’t you see we give you
+“last dance?”
+Let us hear we are generous
+fly into the sky,
+fall with it
+Are you ready to go insane?
+Get exited now death
+comes for you!
+We’ll we definitely
+end the universe
+All up to us to decide how long
+your life last
+Your attack can’t even
+come close
+Wonder when you’ll become
+overcome with madness
+pathetically
+All up to us decide how we
+invade your base
+It could be just
+perfect to kill time
+Although there’s no way for
+you to survive this purge
+Would you like to try?
+Listen,you won’t make it
+```
